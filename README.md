@@ -1,7 +1,7 @@
 # dwp-para-fl-studio-Mobile
 Solo para el studio Mobile
 
-Algunad voces fueron gracias a blantados y 
+Algunas voces fueron gracias a blantados y 
 genox algunos fueron míos los mío 
 son dad tord matt mod matt ver dwp Tom dwp
 Edd dwp
