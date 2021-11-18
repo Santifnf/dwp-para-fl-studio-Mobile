@@ -6,8 +6,8 @@ genox algunos fueron míos los mío
 son dad tord matt mod matt eddsworld dwp Tom dwp
 Edd dwp
 y otro la de blantados son su voz y la de
-Edd matt eddsworld mod tord eddsworld mod y 
-Tom genox la voz de tord mod tord versión Utau
+Edd utau matt utau eddsworld mod tord utau eddsworld mod y 
+Tom utau genox la voz de tord mod tord versión Utau
 
 Blantados
 https://github.com/Blantados/blantados-funkin-utau-main
