@@ -3,7 +3,7 @@ Solo para el studio Mobile
 
 Algunas voces fueron gracias a blantados y 
 genox algunos fueron míos los mío 
-son dad tord matt mod matt ver dwp Tom dwp
+son dad tord matt mod matt eddsworld dwp Tom dwp
 Edd dwp
 y otro la de blantados son su voz y la de
 Edd matt eddsworld mod tord eddsworld mod y 
